@@ -41,4 +41,4 @@ Die „feine Gesellschaft“ sollte als Nächste bluten. Man glaubt kaum, was f�
 
 Es hat ganz den Anschein, als gäbe es schmutzige Geschäfte zwischen der kriminellen Unterwelt und der „feinen Gesellschaft“. Beide Seiten sollten Verluste erleiden. Beide sollten zerschlagen werden. Schade nur, dass die Anführer nicht offiziell bekannt sind. Wer sich auf eine Seite schlägt, macht sich zwangsläufig viele Feinde.
 
-- Nameloser Gemeiner 
+– Nameloser Gemeiner 
