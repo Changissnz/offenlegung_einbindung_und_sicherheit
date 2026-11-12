@@ -42,3 +42,17 @@ Die „feine Gesellschaft“ sollte als Nächste bluten. Man glaubt kaum, was f�
 Es hat ganz den Anschein, als gäbe es schmutzige Geschäfte zwischen der kriminellen Unterwelt und der „feinen Gesellschaft“. Beide Seiten sollten Verluste erleiden. Beide sollten zerschlagen werden. Schade nur, dass die Anführer nicht offiziell bekannt sind. Wer sich auf eine Seite schlägt, macht sich zwangsläufig viele Feinde.
 
 – Nameloser Gemeiner 
+
+Keine Mitleid, Keine Mitleid, 253 AD. 
+-------------------------------------
+
+Ich habe gehört, dass der Jude sein Geschäft schließen musste. Ich kann nicht anders, als keinerlei Mitleid mit ihm zu empfinden. Leute wie er bringen den Juden ohnehin einen schlechten Ruf ein.
+
+Man glaubt kaum, welche Anstrengungen er unternahm, um dieses verlogene Narrativ zu verbreiten. Eigentlich war es ein Fall von grausamer und ungewöhnlicher Bestrafung. Doch als der Anwalt, der er nun einmal war, versuchte er zu behaupten, es sei ein Akt der Barmherzigkeit – unter dem Schutz des Bankenclans.
+
+Wie du weißt, stimmen die Finanzen schon seit Jahren nicht mehr. Besonders die Populisten – ein gefährlicher Haufen. Nicht gerade kompetent, es fehlt ihnen an handwerklichem Geschick. Sie machen ihre Anhänger hasserfüllt und verunsichern sie. Diese Anhänger haben sich ihnen angeschlossen, weil ihnen in unsicheren Zeiten Sicherheit versprochen wurde.
+
+Ich kann nicht einmal mehr stolz den Kaiser dieses Landes erwähnen, ohne dass sofort jemand eine gegenteilige Meinung äußert.
+
+- Mitarbeiter des Amtsgerichts
+
