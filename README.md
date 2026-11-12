@@ -11,3 +11,16 @@ Dem Prätorianer ist nicht zu trauen. Die Unsicherheit dieser Zeiten ist der Bew
 Mit düsteren Grüßen,
 
 Morbid Times.
+
+Eine verlogene Gesellschaft, 253 AD.
+------------------------------------
+
+Das Spiel besteht inzwischen darin, wer die meisten Beleidigungen ertragen kann. Es gibt kein Erbe, das es zu bewahren gälte, und keinen Ruf, den man noch retten müsste. Es gibt reale Probleme. Und es gibt klare Taktiken und Strategien, die von einer internen Bedrohung eingesetzt werden, um den menschlichen Wert zu untergraben. Es handelt sich um eine Kampagne zur Destabilisierung.
+
+Jemand könnte nach der Aufnahme von Schwermetallen dem Tode nahe sein – und der falsche Arzt würde einfach behaupten, die Person sei verrückt, während ihr Gesicht bereits blau angelaufen ist.
+
+Einige der Verantwortlichen inszenieren regelrechte Pogrome. Sie wollen, dass der Schaden von Dauer ist. Sie vergraben die Wahrheit und verbreiten Lügen, um sich die Taschen mit noch mehr Gold zu füllen.
+
+Die Menschen verweigern die Zusammenarbeit. Die Gesellschaft zerfleischt sich selbst. Die Älteren sind Lügner; sie stoßen die Jugend hinaus, damit diese wie Vieh verkauft werden kann.
+
+– Ein namenloser Mann, Anfang 20.
