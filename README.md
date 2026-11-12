@@ -19,6 +19,15 @@ Das Spiel besteht inzwischen darin, wer die meisten Beleidigungen ertragen kann.
 
 Jemand könnte nach der Aufnahme von Schwermetallen dem Tode nahe sein – und der falsche Arzt würde einfach behaupten, die Person sei verrückt, während ihr Gesicht bereits blau angelaufen ist.
 
+Den Gruppen ist das egal.
+--------------------------
+
+The laws have never worked, with the corrupt patricians and their illegal employees. That is why I advise you to maintain distance and shoot far. 
+
+The way these competing groups mix and match everything. It becomes very hard to get settled down. The nobodies. The minorities. They all feel the threat. The rightwing employs violence. And the leftwing will sell them out. The groups want to keep warring with each other. Capital will never flow down to make someone rich. The leaders would have to die before that happens. 
+
+- Advisor to the Consul 
+
 Einige der Verantwortlichen inszenieren regelrechte Pogrome. Sie wollen, dass der Schaden von Dauer ist. Sie vergraben die Wahrheit und verbreiten Lügen, um sich die Taschen mit noch mehr Gold zu füllen.
 
 Die Menschen verweigern die Zusammenarbeit. Die Gesellschaft zerfleischt sich selbst. Die Älteren sind Lügner; sie stoßen die Jugend hinaus, damit diese wie Vieh verkauft werden kann.
