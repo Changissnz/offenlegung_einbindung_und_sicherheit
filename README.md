@@ -33,3 +33,10 @@ Die Gesetze haben noch nie funktioniert – nicht angesichts der korrupten Patri
 Die Art und Weise, wie diese rivalisierenden Gruppen alles durcheinanderbringen – da wird es verdammt schwer, zur Ruhe zu kommen. Die Namenlosen, die Minderheiten – sie alle spüren die Bedrohung. Die Rechte setzt auf Gewalt, und die Linke wird sie verraten. Diese Gruppen wollen den Krieg untereinander einfach fortsetzen. Kapital wird niemals nach unten fließen, um irgendjemanden reich zu machen. Dafür müssten erst die Anführer sterben.
 
 – Berater des Konsuls
+
+Sie haben ein Durcheinander angerichtet, 253 AD. 
+------------------------------------------------
+
+Die „feine Gesellschaft“ sollte als Nächste bluten. Man glaubt kaum, was für einen politischen Zirkus sie da veranstaltet haben. Sie haben Menschenmengen bei dem Wohnkomplex zusammengetrommelt – offenbar hatten einige einflussreiche Persönlichkeiten ein Kopfgeld auf jemanden dort ausgesetzt. Die Meute sollte die Lage weiter anheizen; bei Widerstand wollten sie zu Gewalt greifen.
+
+Es hat ganz den Anschein, als gäbe es schmutzige Geschäfte zwischen der kriminellen Unterwelt und der „feinen Gesellschaft“. Beide Seiten sollten Verluste erleiden. Beide sollten zerschlagen werden. Schade nur, dass die Anführer nicht offiziell bekannt sind. Wer sich auf eine Seite schlägt, macht sich zwangsläufig viele Feinde.
