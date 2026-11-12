@@ -1,5 +1,5 @@
 # Offenlegung, Einbindung, und Sicherheit
-Ein kurzer Eintrag. 
+Ein kurzer Eintrag, 253 AD. 
 -----------------------------------------------
 
 Es war ein Übergriff. Weil eine Person zum Sündenbock gemacht wurde, müssen andere sterben. Andernfalls würde sich das inszenierte Debakel immer wieder wiederholen. Angesichts der verlorenen Zeit entwickelte sich das Ganze zunehmend zu einem blutigen Geschäft. Man beginnt, indem man einen Stab in das rotierende Rad steckt.
