@@ -54,5 +54,5 @@ Wie du weißt, stimmen die Finanzen schon seit Jahren nicht mehr. Besonders die 
 
 Ich kann nicht einmal mehr stolz den Kaiser dieses Landes erwähnen, ohne dass sofort jemand eine gegenteilige Meinung äußert.
 
-- Mitarbeiter des Amtsgerichts
+– Mitarbeiter des Amtsgerichts
 
