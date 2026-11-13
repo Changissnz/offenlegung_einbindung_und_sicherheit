@@ -56,3 +56,7 @@ Ich kann nicht einmal mehr stolz den Kaiser dieses Landes erwähnen, ohne dass s
 
 – Mitarbeiter des Amtsgerichts
 
+Dinge die Todfeinde sagen, 253 AD. 
+-----------------------------------
+
+Der militärische Geheimdienst ist schmutzig. Sie müssen als Erste getötet werden. Danach kann der Mob die Patrizier ausrauben. 
