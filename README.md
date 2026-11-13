@@ -1,4 +1,8 @@
 # Offenlegung, Einbindung, und Sicherheit
+### written by Richard Pham. Translated from English, with the help of computer translation. 
+### The reason why it's in German instead of other Western European languages is obvious, in 
+### historical hindsight. 
+
 Ein kurzer Eintrag, 253 AD. 
 -----------------------------------------------
 
@@ -69,3 +73,12 @@ Untergang der „Great Society“, 253 AD.
 Irgendjemand hat der Dame Drogen oder Ähnliches verabreicht. Sie lässt täglich wirre, psychotische Tiraden los. Spricht man die Verantwortlichen darauf an, tun sie so, als wüssten sie von nichts. Der Konsul faselt ständig von einem Programm für eine „Große Gesellschaft“. Kaum jemand bemerkt, dass eine Armee gegen den Kaiser vorrückt. Das erklärt die Blasphemie.
 
 – Unbenannter Gesellschaftsbeobachter
+
+Was für ein dreister Raubzug, 253 AD.
+-------------------------------------
+
+Es ist Terrorismus. Punkt. Ich spreche von den Galliern und Angelsachsen. Sie haben sich die Güter unter den Nagel gerissen. Und dann behaupten sie, die Leute seien verrückt oder würden lügen. Sie stellen sie sogar vor Gericht – allerdings außerhalb eines ordentlichen Rechtsverfahrens. Sie behaupten, das geschehe auf rechtlicher Grundlage. Die Gallier und Angelsachsen unterscheiden sich von den Mauren; Letztere sind eher ideologisch geprägt und meist selbstbewusster. Doch die Mauren sind noch üblere Schufte und geldgierige Schweine. Und viele von ihnen sind religiöse Terroristen.
+
+Eine üble Sache. Ich wäre dafür, sie das unter sich ausmachen zu lassen – sollen sie sich doch gegenseitig umbringen.
+
+– Plebejer
