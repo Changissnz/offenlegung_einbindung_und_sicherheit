@@ -1,7 +1,6 @@
 # Offenlegung, Einbindung, und Sicherheit
 ### written by Richard Pham. Translated from English, with the help of computer translation. 
-### The reason why it is written in German instead of other Western European languages is obvious, 
-### in historical hindsight. 
+### The reason why it is written in German instead of other Western European languages is obvious, in historical hindsight. 
 
 Ein kurzer Eintrag, 253 AD. 
 -----------------------------------------------
