@@ -62,3 +62,10 @@ Dinge die Todfeinde sagen, 253 AD.
 Der militärische Geheimdienst ist schmutzig. Sie müssen als Erste getötet werden. Danach kann der Mob die Patrizier ausrauben. 
 
 – Namentlich nicht genannter Leutnant
+
+Untergang der „Great Society“, 253 AD. 
+--------------------------------------
+
+Irgendjemand hat der Dame Drogen oder Ähnliches verabreicht. Sie lässt täglich wirre, psychotische Tiraden los. Spricht man die Verantwortlichen darauf an, tun sie so, als wüssten sie von nichts. Der Konsul faselt ständig von einem Programm für eine „Große Gesellschaft“. Kaum jemand bemerkt, dass eine Armee gegen den Kaiser vorrückt. Das erklärt die Blasphemie.
+
+– Unbenannter Gesellschaftsbeobachter
