@@ -1,6 +1,9 @@
 # Offenlegung, Einbindung, und Sicherheit
 ### written by Richard Pham. Translated from English, with the help of computer translation. 
-### The reason why it is written in German instead of other Western European languages is obvious, in historical hindsight. 
+### The reason why it is written in German instead of other Western European languages is obvious, in historical hindsight.  
+  
+
+### Fiktive Notizen aus den Jahren 250–265 AD, verfasst in deutscher Sprache.
 
 Ein kurzer Eintrag, 253 AD. 
 -----------------------------------------------
