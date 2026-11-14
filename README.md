@@ -83,3 +83,12 @@ Es ist Terrorismus. Punkt. Ich spreche von den Galliern und Angelsachsen. Sie ha
 Eine üble Sache. Ich wäre dafür, sie das unter sich ausmachen zu lassen – sollen sie sich doch gegenseitig umbringen.
 
 – Plebejer
+
+Totes Vertrauen in einer kollabierenden Wirtschaft, 253 AD.  
+-----------------------------------------------------------
+
+Wie ich schon zu dem anderen Typen sagte: Der Prätorianer ist nicht vertrauenswürdig. Sie haben den letzten „Großen Mann“, den sie eigentlich beschützen sollten, eiskalt reingelegt. Bei vielen dieser Polizisten ist es genauso. Sie manipulieren einen psychologisch, rauben einen aus und verstehen es meisterhaft, das Geld von der eigentlichen Arbeit zu trennen.
+
+Unter ihrem Wirtschaftssystem ist die Wahrscheinlichkeit, dass du als Hure oder – in ihrem politischen System – als Clown endest, weitaus höher, als wenn du dich weit von ihnen fernhältst. Das Imperium ist kleinlich, und diese Kleinlichkeit kommt überall zum Vorschein.
+
+- Der Freund eines jungen Mädchens
