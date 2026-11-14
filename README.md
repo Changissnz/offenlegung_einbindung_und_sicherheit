@@ -93,7 +93,7 @@ Unter ihrem Wirtschaftssystem ist die Wahrscheinlichkeit, dass du als Hure oder 
 
 – Der Freund eines jungen Mädchens
 
-Vitriol from a Slave Descendant, 253 AD. 
+Giftige Worte eines Sklavennachfahrens, 253 AD. 
 -----------------------------------------
 
 Weißt du was, Bruder? Wenn ich in der Politik wirklich etwas zu sagen hätte, würde ich nicht einen einzigen Juden für mich sprechen lassen. Der Grund ist einfach: Sie behaupten, eine der Minderheiten Roms zu sein – und gleichzeitig bezeichnen sie sich als das auserwählte Volk Gottes.
@@ -101,3 +101,5 @@ Weißt du was, Bruder? Wenn ich in der Politik wirklich etwas zu sagen hätte, w
 Man muss zudem bedenken, wie Rom mit Außenstehenden umgeht – als Kapitalanlage. Sie beginnen als ein barbarisches Volk – oder als ein Volk, das durch die Zerstörung seiner Heimat barbarisiert wurde. Die Konzerne versuchen, diesen Stempel auch ihren Nachkommen aufzudrücken.
 
 Außerdem sind die Juden meiner Meinung nach in einem völlig unbedeutenden Wirtschaftszweig tätig. Anders als die Mauren, die stolz auf ihre aggressiven Übernahmen sind, gehen die Juden bei ihren Geschäften weitaus unterwürfiger vor – und dabei immer politisch. Sie haben meist keine eigenen materiellen Güter, mit denen sie handeln könnten; stattdessen versehen sie den Besitz anderer Leute einfach mit Preisschildern.
+
+– Ein Migrant in Rom, von der Ostfront kommend
