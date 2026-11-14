@@ -104,7 +104,7 @@ Außerdem sind die Juden meiner Meinung nach in einem völlig unbedeutenden Wirt
 
 – Ein Migrant in Rom, von der Ostfront kommend
 
-The Lawful and Legitimate Leader, 253 AD.
+Der rechtmäßige und legitime Anführer, 253 AD.
 -----------------------------------------
 
 Selbst wenn Valerianus siegt, durchschauen die Menschen die wahre Lage. Die römische Legion ist nicht mehr das, was sie einmal war. Inzwischen stellen Germanen einen beträchtlichen Teil der Truppen; sie sind im Kampf eher ungeschickt und darauf aus, den Sieg möglichst schnell zu erzwingen. Der Geist der Truppe hat sich gewandelt.
