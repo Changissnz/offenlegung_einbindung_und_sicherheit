@@ -91,4 +91,4 @@ Wie ich schon zu dem anderen Typen sagte: Der Prätorianer ist nicht vertrauensw
 
 Unter ihrem Wirtschaftssystem ist die Wahrscheinlichkeit, dass du als Hure oder – in ihrem politischen System – als Clown endest, weitaus höher, als wenn du dich weit von ihnen fernhältst. Das Imperium ist kleinlich, und diese Kleinlichkeit kommt überall zum Vorschein.
 
-- Der Freund eines jungen Mädchens
+– Der Freund eines jungen Mädchens
