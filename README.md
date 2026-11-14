@@ -103,3 +103,12 @@ Man muss zudem bedenken, wie Rom mit Außenstehenden umgeht – als Kapitalanlag
 Außerdem sind die Juden meiner Meinung nach in einem völlig unbedeutenden Wirtschaftszweig tätig. Anders als die Mauren, die stolz auf ihre aggressiven Übernahmen sind, gehen die Juden bei ihren Geschäften weitaus unterwürfiger vor – und dabei immer politisch. Sie haben meist keine eigenen materiellen Güter, mit denen sie handeln könnten; stattdessen versehen sie den Besitz anderer Leute einfach mit Preisschildern.
 
 – Ein Migrant in Rom, von der Ostfront kommend
+
+The Lawful and Legitimate Leader, 253 AD.
+-----------------------------------------
+
+Selbst wenn Valerianus siegt, durchschauen die Menschen die wahre Lage. Die römische Legion ist nicht mehr das, was sie einmal war. Inzwischen stellen Germanen einen beträchtlichen Teil der Truppen; sie sind im Kampf eher ungeschickt und darauf aus, den Sieg möglichst schnell zu erzwingen. Der Geist der Truppe hat sich gewandelt.
+
+Valerianus steht einer korrupten Republik vor. Da es den Republikanern nicht gelungen ist, die Wirtschaft zu sanieren, haben sie den Handel blockiert. Dies hat – wenig überraschend – vor allem die Mauren schwer getroffen. Was die Migranten aus dem fernen Osten betrifft: Sie kommen hierher und sind letztlich kaum besser gestellt als Sklaven. Und dann sind da noch die Patrizier – neugierig und stets auf Klatsch aus. Von jedem Geld, das ihnen in die Hände fällt, stecken sie drei Viertel in die eigene Tasche, während der Rest für Veranstaltungen im Amphitheater verprasst wird.
+
+– Berater eines Anführers einer gallischen Verbrecherfamilie
