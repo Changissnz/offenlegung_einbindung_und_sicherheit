@@ -153,3 +153,17 @@ Ich stelle dies als Tatsache fest. Ich kann keinerlei Garantie dafür geben,
 dass der Frieden gewahrt bleibt.
 
 – Eine Analyse von Aufständischen
+
+
+Zwei Brüder entzweien sich, 253 AD.
+-----------------------------------
+
+Ich habe mich bereits entschieden. Aemilianus mag ein Hochstapler sein, ein Maure. Doch er bietet Menschen wie mir die Chance, sich nicht länger vor den Leuten des Valerianus rechtfertigen zu müssen. Sie kramen immer wieder Ereignisse hervor – meist frei erfundene Geschichten, die Jahrzehnte zurückliegen –, angeblich um die Rechtsordnung zu wahren. Das ist reine Rachsucht. Und ich verabscheue so etwas zutiefst.
+
+Valerianus ist ein schwacher Politiker. Die germanischen Konzerne geben ihm Anweisungen, die er dann an alle weiterreicht. Er verlangt von den Untergebenen, dass sie sich benehmen – und schickt Wachen, die ihnen den Mund stopfen und ihren Geist brechen, bis sie gefügig sind. Und ausgerechnet dieser Politiker behauptet, er sei der wahre Populist, der die Sorgen der römischen Bürger versteht.
+
+Ich sage euch: Die Germanen sind ein schwieriges Volk. Wenn sie nicht gerade gegeneinander Krieg führen, mischen sie sich in Angelegenheiten ein, für die sie gar nicht zuständig sind. Hannibal ist tot. Aemilianus hingegen ist ein wertvoller Verbündeter. Er begreift, dass Rom offen bleiben muss, damit der Handel eine größere Gemeinschaft fördern kann. Die Politik des Valerianus kreuzigt die Menschen. Sie versetzt sie in solche Angst, dass sie sich am Ende gar nichts mehr leisten können. Und wofür das alles? Für die Gunst einer germanischen Hure.
+
+Manche dieser Germanen haben den Tod verdient. Ihr ahnt ja gar nicht, welche Risiken sie eingegangen sind, um immer mehr fremde Völker ins Land zu lassen. Sie behaupten, sie kämen aus der Tundra.
+
+– Ein Bruder äußert seine Abneigung gegen die Rechte
