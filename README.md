@@ -112,3 +112,18 @@ Selbst wenn Valerianus siegt, durchschauen die Menschen die wahre Lage. Die röm
 Valerianus steht einer korrupten Republik vor. Da es den Republikanern nicht gelungen ist, die Wirtschaft zu sanieren, haben sie den Handel blockiert. Dies hat – wenig überraschend – vor allem die Mauren schwer getroffen. Was die Migranten aus dem Osten betrifft: Sie kommen hierher und sind letztlich kaum besser gestellt als Sklaven – ein seltsames, abstoßendes Volk. Und dann sind da noch die Patrizier – neugierig und stets auf Klatsch aus. Von jedem Geld, das ihnen in die Hände fällt, stecken sie drei Viertel in die eigene Tasche, während der Rest für Veranstaltungen im Amphitheater verprasst wird.
 
 – Berater eines Anführers einer gallischen Verbrecherfamilie
+
+Loyalität, Erwartungen und das Ego, 453 AD.
+-------------------------------------------
+
+Wäre Valerianus’ Koalition von echter Rechtschaffenheit geprägt, wäre der Lebensweg für viele junge Erwachsene weitaus reibungsloser verlaufen. Doch stattdessen spürt man, wie alles erstarrt. Öffentliche Plätze leeren sich. In den Kneipen sitzen nur noch Schatten.
+
+Valerianus – ganz der politisch korrekte Politiker – hat eine Reihe paranoider Maßnahmen durchgesetzt. Wer ein „guter Bürger“ sein wollte, hatte sich gefälligst an die Regeln zu halten. Doch diese Regeln basierten auf der jeweiligen Herkunft und legten die Menschen in ein festes Korsett – wie in einer zerrütteten Ehe. Und das alles geschah völlig legal. Zudem ließen Valerianus’ Handlanger die Menschen in isolierte Gruppen unterteilen, um jede mögliche Zusammenarbeit zwischen Aufständischen im Keim zu ersticken.
+
+Es ist widerwärtig. Wusstest du, dass es gar nicht so wenige gibt, die eigentlich zum rechten Lager gehören, aber insgeheim mit dem Gedanken spielen, die Seiten zu wechseln? Sie greifen zwar nicht zu den Waffen – schon gar nicht an der Seite jenes brutalen Hochstaplers, der die Gegenseite anführt –, doch sie sind unglücklich darüber, ausharren zu müssen. Alles in der Hoffnung auf eine künftige Sicherheit, die ihnen jedoch niemand garantieren kann. Oder aber: Männer aus niederen Schichten könnten die Hand von Töchtern aus patrizischen Familien gewinnen – was wiederum neue Pflichten und Risiken mit sich brächte.
+
+Bei den Barbaren ist es zumindest so: Sie heucheln keinen Anstand, nur um eine langjährige Schmach zu kaschieren.
+
+Du hast also die freie Wahl. Aber eines sage ich dir: Du gehörst einem niedrigeren Stand an. Stellst du dich auf die Seite von Valerianus, bleibst du den Patriziern untergeordnet – und sie werden hinter deinem Rücken darüber lachen, wie bereitwillig du dich als ihre Schachfigur benutzen lässt.
+
+– Ein Mann richtet Abschiedsworte an einen Freund, bevor er seine Stadt für immer verlässt.
