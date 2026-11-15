@@ -113,7 +113,7 @@ Valerianus steht einer korrupten Republik vor. Da es den Republikanern nicht gel
 
 – Berater eines Anführers einer gallischen Verbrecherfamilie
 
-Loyalität, Erwartungen und das Ego, 453 AD.
+Loyalität, Erwartungen und das Ego, 253 AD.
 -------------------------------------------
 
 Wäre Valerianus’ Koalition von echter Rechtschaffenheit geprägt, wäre der Lebensweg für viele junge Erwachsene weitaus reibungsloser verlaufen. Doch stattdessen spürt man, wie alles erstarrt. Öffentliche Plätze leeren sich. In den Kneipen sitzen nur noch Schatten.
@@ -127,3 +127,29 @@ Bei den Barbaren ist es zumindest so: Sie heucheln keinen Anstand, nur um eine l
 Du hast also die freie Wahl. Aber eines sage ich dir: Du gehörst einem niedrigeren Stand an. Stellst du dich auf die Seite von Valerianus, bleibst du den Patriziern untergeordnet – und sie werden hinter deinem Rücken darüber lachen, wie bereitwillig du dich als ihre Schachfigur benutzen lässt.
 
 – Ein Mann richtet Abschiedsworte an einen Freund, bevor er seine Stadt für immer verlässt.
+
+Manche Dinge enden im Blut, 253 AD.
+-----------------------------------
+
+Ich möchte, dass einige der Anführer jener Stadt bis Ende dieses Jahres tot sind.
+Nicht nur ist diese Stadt unfähig, ein Geheimnis für sich zu behalten –
+die dortigen gesellschaftlichen Kreise haben die Lage völlig vergiftet.
+Diese törichte „Blutsschwester“ betätigt sich nun als Spionin.
+Sie verspottet Menschen, denunziert sie und dient als politisches Werkzeug
+für bestimmte lokale Amtsträger – wobei sie gezielt gegen Einzelpersonen vorgeht.
+
+Für die Betroffenen ist dies eine Schande und eine persönliche Bedrohung.
+Zivile Gesetze haben hier keinerlei Geltung. Die Dekrete des Valerianus wurden
+als Einladung zu einem offenen Diskurs missverstanden. Doch da die Stadt
+nichts von einem intellektuellen Disput im griechischen Sinne versteht,
+hat sie alles in eine Art Schauspiel verwandelt – ganz wie in einem Amphitheater. Es ist 
+zutiefst verlogen. Es herrscht Unruhe. Manche werden gehängt, während andere 
+ins Visier der Wachen geraten.Und all dies geschieht unter dem Deckmantel der 
+Rechtschaffenheit des valerianischen Volkes.
+
+Sollte sich Valerianus zurückziehen, werden seine Truppen sich zerstreuen.
+Bestimmte Gebiete werden dann schutzlos der Kriminalität ausgeliefert sein.
+Ich stelle dies als Tatsache fest. Ich kann keinerlei Garantie dafür geben,
+dass der Frieden gewahrt bleibt.
+
+– Eine Analyse von Aufständischen
