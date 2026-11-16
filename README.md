@@ -178,3 +178,18 @@ Rom ist ein schlechter Witz, der – im Namen der Einheit – auf Ikonen angewie
 Und du solltest kein Mitleid mit einem römischen Polizisten haben, der im Dienst umkommt. Für sie ist jeder ein Gauner. Ein Jude gilt grundsätzlich als Krimineller – es sei denn, er gehört zum Adel oder zahlt ordentlich. Solche Leute stehen in ihren Augen sogar noch unter einem maurischen Händler – es sei denn, sie sprengen ihre Ketten und zetteln einen blutigen Aufstand an. Diese Geisteshaltung gedeiht schon seit Jahren, und die Propagandisten behaupten, der Populismus mache Rom wieder groß. Rom ist anscheinend so „groß“, dass wir dieses Jahr einen Bürgerkrieg haben.
 
 – Ein namenloser Plebejer, höchstwahrscheinlich bei den Sikariern.
+
+Was sagst du zu diesen Anschuldigungen? 253 AD.
+------------------------------------------------
+
+Du hast hier nur eine einzige Gelegenheit, ein Geständnis abzulegen, Soldat. Als Kommandant einer der Legionen des Valerianus musst du dich zu diesen Vorwürfen und den ihnen zugrunde liegenden Tatsachen äußern.
+
+Dir wird vorgeworfen, eine Verschwörung angeführt zu haben, die mit schwerem Raub einherging. Zudem sollst du eine Desinformationskampagne geleitet haben, die den Weg für Kriegsverbrechen – darunter Mord – ebnete. Dies sind die Informationen, die uns, dem Gericht, vorliegen. Du und deine Soldaten habt gewaltsame Maßnahmen ergriffen, um die Lebensbedingungen der Arbeiter in einer Stadt nahe Tripolis gezielt zu verschlechtern. Ein vertraglich vereinbarter Entschädigungsanspruch wurde missachtet; die Arbeiter erhielten keinen Lohn. Du und deine Soldaten habt die Güter an sich genommen und an deutsche Konzerne verkauft. Anschließend hast du die Behauptung in die Welt gesetzt, unter den Arbeitern befänden sich Terroristen. Daraufhin wurde eine weitere Legion entsandt, um die Stadt dem Erdboden gleichzumachen.
+
+Durch das Aufsehen, das diese Zerstörung erregte, wurde eine Nachbarstadt alarmiert, die beabsichtigte, die Behörden in der Hauptstadt – bis hin nach Ägypten – zu verständigen. Dir wird zur Last gelegt, eine Vertuschungsaktion geleitet zu haben: Deine Soldaten fingen Boten ab und töteten sie, es wurden Beweise für einen Aufstand gefälscht, und du hast Massenkreuzigungen an ganzen Bevölkerungsgruppen angeordnet – mit der Begründung, die Überlebenden würden sich andernfalls erneut gegen Rom erheben.
+
+Diese Ereignisse trugen sich im Jahr 249 n. Chr. zu. Seitdem sollst du zudem umfangreiche schwarze Listen geführt haben. In Zusammenarbeit mit den Behörden in den Provinzen Hispania, Ägypten und darüber hinaus hast du dafür gesorgt, dass Sympathisanten oder Opfer der von deinen Soldaten verübten Taten vom Militärdienst sowie von zivilen Verwaltungsaufgaben im Römischen Reich ausgeschlossen wurden.
+
+Wie erklärst du dir diese Erkenntnisse, Kommandant?
+
+– Hauptsprecher der Strafgerichte
