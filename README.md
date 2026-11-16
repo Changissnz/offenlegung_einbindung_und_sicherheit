@@ -193,3 +193,21 @@ Diese Ereignisse trugen sich im Jahr 249 n. Chr. zu. Seitdem sollst du zudem umf
 Wie erklärst du dir diese Erkenntnisse, Kommandant?
 
 – Hauptsprecher der Strafgerichte
+
+
+Ich bin die Legion, ich bin Rom, Euer Ehren, 253 AD. 
+----------------------------------------------------
+
+In den Augen der Götter habe ich nichts Unrechtmäßiges getan, Euer Ehren. Ich vertrete in erster Linie die Interessen Roms. Meine Befehle erteile ich nach bestem Wissen und Gewissen. Jede Angelegenheit durchläuft einen Prozess, der von meinen ranghöchsten Beratern – allesamt Männer von untadeligem moralischem Ruf, das versichere ich Euch – geprüft wird.
+
+In Libyen gab es militante Gruppierungen; darum wurde sich gekümmert. Es wurden gefälschte oder gefährliche Waren hergestellt; diese wurden auf dem ordnungsgemäßen Weg eingezogen und vernichtet, wobei die Betroffenen eine angemessene Entschädigung erhielten, die ihrem gesellschaftlichen Rang entsprach.
+
+Es gab Nachrichten und Anweisungen, die darauf abzielten, eine fanatische militante Streitmacht gegen Rom aufzubauen. Ich habe Befehle erteilt, um eine solche Gefahr im Keim zu ersticken und zu zerschlagen.
+
+Schließlich – wir befinden uns hier in Rom, Euer Ehren. Rom heißt jeden willkommen, sofern er bereit ist, sich unseren Bräuchen anzupassen. Jeder körperlich taugliche Bürger aus einer beliebigen Provinz kann sich für unser Militär melden, denn unser Blick ist stets auf die Welt jenseits unserer Grenzen gerichtet. Regionen wie etwa jene in Libyen sind von einer derartigen historischen Ungenauigkeit, Intellektuellenfeindlichkeit und brutalen Militanz geprägt, dass ein auf Leistung basierendes Auswahlverfahren die Mehrheit von ihnen – eher früher als später – aussortieren würde. Zudem gibt es für fähige Personen – sofern sie vor dem Gesetz als rechtschaffen gelten – keinerlei rechtliche Hindernisse, eine der vielen zivilen Verwaltungsaufgaben in unserem Staat zu übernehmen.
+
+Ich versichere Euch: Die Vorwürfe wegen Diskriminierung und Raub, die gegen mich erhoben werden, sind völlig grundlos. Sie sind das Ergebnis einer Verschwörung, die von germanischen Splittergruppen und deren parthischen Geldgebern angezettelt wurde.
+
+Wenn Ihr nach Gerechtigkeit sucht, Euer Ehren, dann solltet Ihr Euren Blick in jene Ecke des Römischen Reiches richten.
+
+– Ein Kommandeur einer von Valerius’ Legionen
