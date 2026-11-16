@@ -167,3 +167,14 @@ Ich sage euch: Die Germanen sind ein schwieriges Volk. Wenn sie nicht gerade geg
 Manche dieser Germanen haben den Tod verdient. Ihr ahnt ja gar nicht, welche Risiken sie eingegangen sind, um immer mehr fremde Völker ins Land zu lassen. Sie behaupten, sie kämen aus der Tundra.
 
 – Ein Bruder äußert seine Abneigung gegen die Rechte
+
+Vorurteile und Wahrheiten unter dem römischen Namen, 253 AD. 
+------------------------------------------------------------
+
+Weißt du, ein Teil des jüdischen Volkes hat ein Problem. Sie stammen nämlich nicht alle aus Jerusalem. Diese Vielfalt ist meiner Meinung nach geradezu bizarr. Sie sind irgendwie überall – und doch nirgendwo. Zunächst einmal muss man zwischen den Adligen – wie etwa jenen, die sich auf die Seite von Pontius Pilatus schlugen – und dem Rest unterscheiden. Und was den Rest betrifft: Viele von ihnen sind, das kann ich dir sagen, praktisch nicht von den Parthern zu unterscheiden. Dann gibt es noch die „Halbblütigen“ aus dem Osten, die unter der Ägide germanischer Konzerne nach und nach ins Land geströmt sind.
+
+Rom ist ein schlechter Witz, der – im Namen der Einheit – auf Ikonen angewiesen ist. Du hast ja gesehen, wie sie die Christen verdrängt haben. In den letzten Jahren hat sich plötzlich eine Koalition gebildet, die Valerius vergöttlichen will. Valerius. Den „Rechtmäßigen“. Valerius sei Apollo. Und Apollo müsse verehrt werden. Was soll das bitte für ein römischer Brauch sein? Das ist Gotteslästerung. Vielen der Bediensteten ist das völlig egal. Die Arbeiter haben mit Religion ohnehin nichts am Hut; sie reagieren lediglich auf die Angstkampagnen der römischen Wachen. Der Staatsapparat ist durch und durch verrottet. Du wärst überrascht, wie die Akademien ihr Personal ausbilden und auswählen: lauter Homosexuelle, Menschen mit gebrochenem Ego – und vor allem solche, die ihren Hass perfekt zu verbergen wissen.
+
+Und du solltest kein Mitleid mit einem römischen Polizisten haben, der im Dienst umkommt. Für sie ist jeder ein Gauner. Ein Jude gilt grundsätzlich als Krimineller – es sei denn, er gehört zum Adel oder zahlt ordentlich. Solche Leute stehen in ihren Augen sogar noch unter einem maurischen Händler – es sei denn, sie sprengen ihre Ketten und zetteln einen blutigen Aufstand an. Diese Geisteshaltung gedeiht schon seit Jahren, und die Propagandisten behaupten, der Populismus mache Rom wieder groß. Rom ist anscheinend so „groß“, dass wir dieses Jahr einen Bürgerkrieg haben.
+
+– Ein namenloser Plebejer, höchstwahrscheinlich bei den Sikariern.
