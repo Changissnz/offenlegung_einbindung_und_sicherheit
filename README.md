@@ -219,5 +219,7 @@ Die einzig angemessene Art, den deutschen kriminellen Söldner und seine hispani
 
 So viel zur Ehre derer, die ihre Loyalität im Ausland haben. Dies dürfte mit dem Irrtum aufräumen, wer die tatsächlichen (de facto) Akteure sind.
 
+Ich will, dass der deutsche Söldner endgültig tot ist.
+
 – Ein militärischer Berater des Römischen Senats an der Südfront.
 
