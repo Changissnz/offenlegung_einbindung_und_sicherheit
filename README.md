@@ -234,4 +234,4 @@ Man könnte nun meinen, diese „bastardhaften Cousins“ seien besser, da sie n
 
 „Alle Barbaren müssen den von Rom vorgegebenen Weg beschreiten“, sagen sie. Sie behaupten, dies sei rechtmäßig – eine Art Prüfung für eine gute, moderne römische Bürgerschaft. Ich denke nur, dass die Verantwortlichen für den Test nach dessen Abschluss ruhig schutzlos sterben können.
 
-- Ein Mann lässt sich gegenüber einem Freund über seinen Frust mit der römischen Gesellschaft aus.
+– Ein Mann lässt sich gegenüber einem Freund über seinen Frust mit der römischen Gesellschaft aus.
