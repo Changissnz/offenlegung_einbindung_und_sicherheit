@@ -211,3 +211,13 @@ Ich versichere Euch: Die Vorwürfe wegen Diskriminierung und Raub, die gegen mic
 Wenn Ihr nach Gerechtigkeit sucht, Euer Ehren, dann solltet Ihr Euren Blick in jene Ecke des Römischen Reiches richten.
 
 – Ein Kommandeur einer von Valerius’ Legionen
+
+So zahlt sich deine Loyalität – durch deine eigene Unaufrichtigkeit, 253 AD.
+---------------------------------------------------------------------------
+
+Die einzig angemessene Art, den deutschen kriminellen Söldner und seine hispanischen Komplizen – angesichts ihres versuchten Mordes und des Betrugs am Sozialsystem – zu behandeln, besteht darin, sie den Naturgewalten preiszugeben. Dies lässt sich erreichen, indem man eine feindliche militante Gruppierung ins Spiel bringt, die sie bekämpfen sollen. Sie werden sich in das betreffende Gebiet begeben und dort in der Falle sitzen. Nahrungsmittel und Ressourcen werden zur Neige gehen. Sie werden an Ruhr erkranken, Infektionen werden sie in den Wahnsinn treiben, und womöglich werden sie aus Frustration sogar dazu übergehen, einander umzubringen.
+
+So viel zur Ehre derer, die ihre Loyalität im Ausland haben. Dies dürfte mit dem Irrtum aufräumen, wer die tatsächlichen (de facto) Akteure sind.
+
+– Ein militärischer Berater des Römischen Senats an der Südfront.
+
