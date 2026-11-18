@@ -260,4 +260,4 @@ Diese weltoffene Veranstaltung war eine wahre Wohltat – ein willkommener Kontr
 
 Ich weiß, das ist ein unfairer Vergleich, schließlich ist Aemilianus der Kaiser. Dennoch bin ich überzeugt, dass Aemilianus sich als ein besserer Reformer erweisen wird als jeder Berufspolitiker, der in der Unzulänglichkeit römischer „Pragmatik“ geschult wurde. Doch was unter dem römischen Ego als „Pragmatik“ firmiert, ist in Wahrheit gar kein Pragmatismus. Es ist der Drang zur Kontrolle: Kontrolle über das Narrativ, über die Ressourcen, über die Arbeitskraft – alles unterworfen der Herrschaft römischer Konzernstrukturen.
 
-- Ein Bruder teilt seine Begeisterung für ein festliches Ereignis
+– Ein Bruder teilt seine Begeisterung für ein festliches Ereignis
