@@ -235,3 +235,29 @@ Man könnte nun meinen, diese „bastardhaften Cousins“ seien besser, da sie n
 „Alle Barbaren müssen den von Rom vorgegebenen Weg beschreiten“, sagen sie. Sie behaupten, dies sei rechtmäßig – eine Art Prüfung für eine gute, moderne römische Bürgerschaft. Ich denke nur, dass die Verantwortlichen für den Test nach dessen Abschluss ruhig schutzlos sterben können.
 
 – Ein Mann lässt sich gegenüber einem Freund über seinen Frust mit der römischen Gesellschaft aus.
+
+
+
+
+
+
+
+
+
+
+Die Offenbarungen eines Römers aus der gehobenen Gesellschaft, 253 AD.
+--------------------------------------------------------------------
+
+Bruder, ich habe kürzlich an einer Feier teilgenommen, die von Aemilianus – dem neu erhobenen Kaiser Aemilianus – ausgerichtet wurde. Es tut mir leid, dass ich dich nicht mitnehmen konnte. Doch es war eine seltene Gelegenheit, und nur dank eines Freundes gelang es mir, Einlass zu finden.
+
+Dieser Abend hat mir die Augen für das enorme Potenzial geöffnet, das das „Neue Rom“ zu bieten hat. Jener träge, mürrische und anspruchsvolle Römer aus Italien – derjenige, der vorgibt, Bescheidenheit und Strenge zu schätzen –, verwendet in Wahrheit seine gesamte Energie auf politische Verschwörungen. Wie typisch für diese populistischen Republikaner! Und sie sind sogar so schamlos, Valerianus auf ein Podest zu heben – als wäre er ein zweiter Apollo –, um ihn als ernsthaften Herausforderer für die Herrschaft des Aemilianus zu inszenieren.
+
+Es gab einige bemerkenswerte Details bei dieser Veranstaltung. Zunächst einmal waren die anwesenden Frauen – Tänzerinnen und Sängerinnen – von außergewöhnlicher Qualität. Sie wirkten wie ein neuer, gesünderer Schlag Mensch, ganz anders als die Römerinnen in der Nähe der Hauptstadt. Letztere verfallen schon in jungen Jahren der Mittelmäßigkeit; sie sonnen sich in den Freiheiten, die ihnen zuteilwerden – etwa bei der freien Wahl ihrer Liebhaber oder beim Genuss üppigster Speisen. Das erklärt wohl auch, warum sie so fettleibig sind. Ich habe den Eindruck, dass dies zu einem typischen Merkmal der „konventionellen“ Römerin geworden ist – ob nun aus Italien oder Griechenland; ich kann da ohnehin kaum noch einen Unterschied erkennen.
+
+Die maurischen Frauen bei Aemilianus hingegen waren von stattlicherer Statur und zeigten eine weitaus kultiviertere Etikette. Sie waren offensichtlich darin geschult, auf eine Weise gastfreundlich und verführerisch zu sein, die sich völlig von den römischen Konventionen abhebt.
+
+Diese weltoffene Veranstaltung war eine wahre Wohltat – ein willkommener Kontrast zu meinem tristen Alltag in der Provinz, der geprägt ist von Elend, den ungestümen Töchtern der Patrizier und Straßenhuren, die vom römischen Kapitalismus so sehr gezeichnet sind, dass sie in keiner Weise mit den Frauen bei Aemilianus’ Fest mithalten können. Diese Gruppierung gibt mir Hoffnung, dass unser großartiger römischer Staat gastfreundlich und gerecht bleibt – ein Staat, der es fähigen Menschen ermöglicht, frei von Provinz zu Provinz zu reisen, sei es aus beruflichen Gründen, für die Familie oder um Gemeinschaft zu finden. Ich gebe zu, dass mich die Vorstellung des Zoroastrismus – der in Aemilianus’ Hierarchie eine so bedeutende Rolle im Hintergrund spielt – anfangs eher abgestoßen hat. Doch mittlerweile empfinde ich die Art und Weise, wie diese Menschen sprechen und handeln, als weitaus bescheidener und weniger wahnhaft als die Religionen, die im römischen Italien verbreitet sind. Versteht Ihr: Valerianus könnte niemals eine kosmopolitische Ordnung etablieren, ohne damit einen weiteren Bürgerkrieg heraufzubeschwören. Er gehört zur „Alten Garde“. Doch die Alte Garde hatte ihre Schattenseiten: Sie hat Blut vergossen, um an die Macht zu gelangen. Valerianus hingegen verlässt sich auf seine veralteten Gesetze – ein trauriger Versuch, in unserem sich wandelnden römischen Staat weiterhin relevant zu bleiben.
+
+Ich weiß, das ist ein unfairer Vergleich, schließlich ist Aemilianus der Kaiser. Dennoch bin ich überzeugt, dass Aemilianus sich als ein besserer Reformer erweisen wird als jeder Berufspolitiker, der in der Unzulänglichkeit römischer „Pragmatik“ geschult wurde. Doch was unter dem römischen Ego als „Pragmatik“ firmiert, ist in Wahrheit gar kein Pragmatismus. Es ist der Drang zur Kontrolle: Kontrolle über das Narrativ, über die Ressourcen, über die Arbeitskraft – alles unterworfen der Herrschaft römischer Konzernstrukturen.
+
+- Ein Bruder teilt seine Begeisterung für ein festliches Ereignis
