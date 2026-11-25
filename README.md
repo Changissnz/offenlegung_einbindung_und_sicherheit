@@ -365,3 +365,18 @@ Einfach ausgedrückt: Die verschiedenen römischen Regierungsstrukturen verlange
 Die Mächtigen begehen keinen Verrat – so lautet zumindest der Glaube. Sie streben lediglich danach, durch die ihnen verliehene Macht zu herrschen. Man beruft sich dabei auf die überlieferten Ideale der Alten Republik – Ideale, die bis heute wiederholt und sogar auswendig gelernt werden. Heutzutage wird von all jenen, die unter dem Schirm der Macht stehen, Unterwerfung erwartet. Sie müssen gehorchen. Genau diese Doktrin verleitet viele einfache Bürger dazu, sich an Verschwörungen, Verrat und Aufsässigkeit zu beteiligen. Sie tun dies in der Überzeugung, dass sie nicht etwa den offiziellen Amtsträger verraten, sondern im Gegenteil die Integrität Roms wahren. Die Populisten sehen darin einen Appell an die allen Menschen innewohnende Gleichheit. Doch dies wirkt zutiefst destabilisierend – und unsere Goldreserven werden einmal mehr zu einem Problem für die Legitimität des Staates.
 
 – Ein staatlicher Rechnungsprüfer bringt Probleme bei den Steuereinnahmen mit Verrat in Verbindung
+
+Der Römer kann keine klaren Antworten geben, 253 AD. 
+------------------------------------------------------
+
+Ich würde dem Römer ins Gesicht spucken – nicht nur einmal, sondern gleich zehnmal. Ich verehre diese römischen Götter nicht, denn sie wurden von den Griechen gestohlen. Und von den Griechen will ich erst gar nichts hören – für mich sind das allesamt „Korinther“, durch die Bank weg. Griechische Tricksereien. Ich schlage mich auch auf keine Seite der Christen; die Guten unter ihnen werden verfolgt, und diejenigen, die zu etwas gekommen sind, sind wahrscheinlich Pädophile oder Juden. Da sie verfolgt werden, geben sie eben vor, einen anderen Glauben anzunehmen. Überrascht? Keineswegs.
+
+Als ich von Aemilianus’ schnellem Aufstieg auf den Thron hörte, konnte ich nicht anders, als gemeinsam mit meinen Freunden über diesen Verrat zu lachen. Der Kaiser begeht keinen Verrat. Nein. Niemals. Aber seine Generäle können es – und sie haben es getan.
+
+Diese Römer sind nicht in der Lage, irgendetwas auf dem ordentlichen Rechtsweg zu klären. Wenn sie mit mir oder meinem Volk zu tun haben, dann – so vermute ich – steckt ganz sicher irgendein schmutziges Geschäft mit Gold dahinter. Korrektur: Ich erwarte das sogar – zumal ich gehört habe, dass diesen sogenannten „unbesiegten“ römischen Befehlshabern weitere Feldzeichen – ihre „Aquilae“ – abhandengekommen sind. Ich könnte darüber klagen, doch ich bin ja keine Romanfigur. Als ich jünger war, nannten sie mich einen Wilden, einen Bastard. Und jetzt, da ich ihnen keinen Tribut mehr zolle – während sie mir im Gegenzug nichts bieten außer wirtschaftlichen Sanktionen gegen mein Volk –, gelte ich als undankbar. Und Leute wie ich seien angeblich der Grund für den Zerfall Roms.
+
+Ich begrüße es, wenn Römer einander verraten. Am liebsten würde ich den Schädel eines Spaniers als Gefäß für den Wein benutzen, den mir die Gallier anbieten. Ich sehe die Dinge, wie sie sind – denn ich habe nie zu ihnen gehört. Ich lasse römische Gangster für geschäftliche Zwecke zu, denn auch sie kennen die verabscheuungswürdige Natur von Königen und Kaisern: die Untreue. Sie beschwerten sich über unkontrollierte Migration – und deshalb üben die Machthaber nun Druck auf mich und mein Volk aus.
+
+Für ihre Steuereinnahmen ist das eigentlich ziemlich schade. Wir planen, zurück in den Osten aufzubrechen – dorthin, wo es weniger Romane gibt und auch weniger faule Heuchler.
+
+– Ein namenloser Mann hält eine kurze Abschiedsrede an einen Roman, bevor er aufbricht.
