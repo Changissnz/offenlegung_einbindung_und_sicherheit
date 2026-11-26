@@ -380,3 +380,28 @@ Ich begrüße es, wenn Römer einander verraten. Am liebsten würde ich den Sch�
 Für ihre Steuereinnahmen ist das eigentlich ziemlich schade. Wir planen, zurück in den Osten aufzubrechen – dorthin, wo es weniger Romane gibt und auch weniger faule Heuchler.
 
 – Ein namenloser Mann hält eine kurze Abschiedsrede an einen Roman, bevor er aufbricht.
+
+Was die römische Expansion falsch gemacht hat, 253 AD. 
+-------------------------------------------------------
+
+Viele Römer verstehen nicht, dass es ehrenhafte Abkommen gegeben haben muss, die am Anfang geschlossen wurden, damit Verrat im Falle eines Falles erkannt werden konnte. Andernfalls wäre es einfach menschliches Handeln gewesen, das dort agierte, wo die Gelegenheit am wertvollsten war.
+
+Und dieses Prinzip ist das grundlegende, mit dem sich praktisch die gesamte römische Identität nicht abfinden kann, nicht mit einem Kaiser, der sich den Thron erst kürzlich durch gewaltsame und undemokratische Mittel angeeignet hat.
+
+Rom expandierte und beschloss dann, unser Volk zu einem seiner Protektorate zu machen. Wir liefern dem römischen Staat Feldfrüchte und erwarten im Gegenzug Freiheiten für unsere Bräuche. Vom offiziellen Kaiserpalast bis zu uns pflegen wir gute Beziehungen. Doch die sektiererische Organisation, die Rom prägt, hat nichts als schwarze Magie gewirkt und uns aus willkürlichen und unfairen Gründen ins Verderben gestürzt.
+
+Die sektiererische Organisation ist die Antwort des intellektuellen Römers auf die römische Industrie. Krieg, Liebe, Wein, Brüderlichkeit, Täuschung, Handel. All diese Angelegenheiten fallen in den Zuständigkeitsbereich der römischen Götter, definiert nach dem Bild der Menschheit. Und es ist nicht irgendein Mensch, sondern ein sehr stereotypisch griechisch-römischer. Was sagt das nun über Aemilianus aus, einen Mauren, unseren heutigen großen römischen Kaiser? Nichts, was die meisten Menschen öffentlich auszusprechen wagen würden, nicht, dass die Öffentlichkeit für den römischen Einzelnen noch so viel Bedeutung hätte.
+
+Die Dunkelheit breitet sich aus. Die Diskussionen kreisen um die gleichen alten Themen, um die Begierden des Mannes zu befriedigen und den Stolz der Frau zu schmeicheln, damit sie nicht zu Verschwörungen greifen, deren Ende dem Schicksal vergossenen Blutes gleichkommt, Krieg aus dem Glauben an das erzwungene Überleben.
+
+Vielleicht ist es für den politischen Römer zur zweiten Natur geworden, hinterhältige Taktiken anzuwenden. Sie glauben, es diene lediglich dazu, den wohlwollenden Einfluss ihrer eingesetzten Herrschaft zu bestätigen. Doch stattdessen herrscht unter den Römern Verwirrung darüber, welche Rechte ihnen zustehen. Einfach ausgedrückt: Die Rechte eines Römers sind die Rechte, in die er hineingeboren wird, nicht unbedingt, weil er Römer ist. Doch diese Idee ist ihnen nur schwer zu vermitteln, insbesondere in der lateinischen Sprache, die ihre Lebensanschauung so stark geprägt hat.
+
+Der maurische Handel ist die Goldgrube, die einen Großteil des römischen Kapitals antreibt. Und die Mauren, so philiströs sie auch sein mögen und tollkühn genug, Hunderte Male mehr Aufwand zu betreiben, wie im Fall von Hannibals Alpenüberquerung, bilden einen starken Kontrast zur Staatskunst des orthodoxen Roms, insbesondere da diese Staatskunst zumeist hinterhältig ist.
+
+So verschleiern Erziehung, konfessionelle Organisation und die römische Handelsmünze – die offensichtlichen Kennzeichen dessen, wie ein Mensch im Kontext des römischen Staates zu sein hat – das Unbekannte des Anderen, die Alternativen. Wege kreuzen sich, und statt gemeinsamer Arbeit entstehen Meinungsverschiedenheiten, die ausgetauscht werden müssen. Neid auf die Lebensentscheidungen des anderen, Fragen nach den Umständen seiner Geburt und was ihn weiterhin zum Leben antreibt. Konfessionelle Loyalität verlangt dann, dass die Menschen ihren Lebensweg beibehalten. Sie bestärkt ihren Stolz, den Anderen als unter oder über sich selbst zu stellen, aber immer auf eine Weise, die leicht zu einem Streitpunkt führen kann.
+
+Die Menschen sind nicht aus dem gleichen Holz geschnitzt. Wären sie es, hätten sie alle die gleichen Gesichter und die gleiche Statur. Jeder Konsens führt zu einem plötzlichen Ungleichgewicht an anderer Stelle im Römischen Reich. Die Menschen ringen um Erklärungen und rufen die Namen der Götter an. Oder sie behaupten, eigentlich ein Tier zu sein.
+
+Würde man einigen der heutigen großen Untergrundschurken Roms schwierige Fragen stellen, würden sie alles abstreiten. Und ihre Aufzeichnungen würden sie stets als Helden darstellen, nicht als Schurken. „Haben Sie sich an der Verfolgung dieser Menschen beteiligt?“ „Verletzt Ihr Gewerbe die Würde anderer Menschen?“ „Wie gedenken Sie, das Unrecht, das Sie dieser Person angetan haben, wiedergutzumachen?“ „Wie können Sie die Unternehmungen dieser Menschen unterstützen?“ Meistens würden sie mit „Nein“ oder „Ich weiß es nicht“ antworten. Einige wenige, insbesondere die Geisteskranken, würden sich sogar bemühen zu helfen. Und die begriffsstutzige und übellaunige römische Regierung würde eingreifen. Und die Lage würde sich auf einen weiteren, unerwarteten Tiefpunkt verschärfen.
+
+– Ein Ältester aus einem germanischen Dorf äußert seine Bedenken hinsichtlich der Einhaltung eines Paktes mit einem zerfallenden Rom.
