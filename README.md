@@ -429,7 +429,7 @@ Könnte es sein, dass die römische Gesellschaft ihn ausgrenzte und in eine dera
 
 Könnte es sein, dass die römische Gesellschaft schlicht nicht wusste, wo sie ihn einordnen sollte? Sie bot ihm Institutionen an – und verlangte von ihm, als Symbolfigur für römische Ideale zu dienen.
 
-Hat die römische Gesellschaft womöglich die Neigung, Menschen zu verfolgen und mit Füßen zu treten? Und was ist mit dem Ruf Roms? Die militärischen Siege nehmen ab – das kümmert das einfache Volk kaum. Alles, was sie besitzen, lässt sich gegen Gold eintauschen – oder gegen ein weiteres Feldzeichen (Aquila) für Roms führende Köpfe.
+Hat die römische Gesellschaft womöglich die Neigung, Menschen zu verfolgen und mit Füßen zu treten? Und was ist mit dem Ruf Roms? Die militärischen Siege nehmen ab – das kümmert das einfache Volk kaum. Alles, was sie besitzen, lässt sich gegen Gold eintauschen – gegen ein weiteres Feldzeichen (Aquila) für Roms führende Köpfe.
 
 Die Freiheit in der römischen Gesellschaft bedeutet für viele Römer den Verlust ihrer Privatsphäre. Verleumdungen, Falschdarstellungen, Propagandakampagnen – es scheint, als hätte Rom all seine Energie darauf verwendet, die Kunst der politischen Kriegsführung zu perfektionieren, während es für echte Wissenschaft kein Verständnis aufbringt; denn in ihrer Welt unterliegt alles der Herrschaft der römischen Götter. Und man erkennt die Wahrheit hinter diesen Ereignissen: wie die römischen Götter im letzten Jahrhundert stets die römischen Adligen begünstigt haben.
 
