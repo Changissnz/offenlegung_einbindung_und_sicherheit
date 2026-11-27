@@ -419,3 +419,18 @@ Ich bin im Handwerk tätig. Als ich anfing, war mir klar, dass die physische Wel
 darüber hinaus expandiert.“ Ich bin jedoch kein Politiker, also bleibt mir nichts anderes übrig, als den brutalen Auseinandersetzungen auszuweichen. Ich werde selbst nicht in den Krieg ziehen, und ich werde auch meine Söhne nicht dazu drängen.
 
 – Ein maurischer Kaufmann beklagt die unrealistischen Ambitionen Roms
+
+Hat der Römer das wirklich getan? 253 AD.
+-----------------------------------------
+
+Was hat die römische Gesellschaft diesem Mann angetan, dass er schließlich zu den Parthern überlief? Er ist weder Araber noch Parther.
+
+Könnte es sein, dass die römische Gesellschaft ihn ausgrenzte und in eine derart elende Einkommensschicht drängte, dass es für ihn unmöglich wurde, seine Stadt unversehrt zu verlassen? Er versuchte es ein- oder zweimal – und wäre dabei beinahe von einer römischen Wache getötet worden; doch das wäre völlig rechtmäßig gewesen.
+
+Könnte es sein, dass die römische Gesellschaft schlicht nicht wusste, wo sie ihn einordnen sollte? Sie bot ihm Institutionen an – und verlangte von ihm, als Symbolfigur für römische Ideale zu dienen.
+
+Hat die römische Gesellschaft womöglich die Neigung, Menschen zu verfolgen und mit Füßen zu treten? Und was ist mit dem Ruf Roms? Die militärischen Siege nehmen ab – doch das kümmert das einfache Volk kaum. Alles, was sie besitzen, lässt sich gegen Gold eintauschen – oder gegen ein weiteres Feldzeichen (Aquila) für Roms führende Köpfe.
+
+Die Freiheit in der römischen Gesellschaft bedeutet für viele Römer den Verlust ihrer Privatsphäre. Verleumdungen, Falschdarstellungen, Propagandakampagnen – es scheint, als hätte Rom all seine Energie darauf verwendet, die Kunst der politischen Kriegsführung zu perfektionieren, während es für echte Wissenschaft kein Verständnis aufbringt; denn in ihrer Welt unterliegt alles der Herrschaft der römischen Götter. Und man erkennt die Wahrheit hinter diesen Ereignissen: wie die römischen Götter im letzten Jahrhundert stets die römischen Adligen begünstigt haben.
+
+– Ein Unbekannter stellt sarkastische Fragen, um das Überlaufen eines weiteren Mannes aus Rom zu erklären.
